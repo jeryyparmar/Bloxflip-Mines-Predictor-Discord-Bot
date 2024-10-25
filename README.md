@@ -14,4 +14,3 @@ chance displayed on embed completely random though 🤷‍♂️
 
 ## completely random mines predictor bot DO NOT SELL IT.
 #### if u repost or distribute with no credits im prob gonna take down.
-
